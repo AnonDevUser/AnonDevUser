@@ -4,4 +4,4 @@ I'm learning and building projects in Python as I work toward becoming a better 
 
 **Contact me** 
 
-[LinkedIn](https://www.linkedin.com/in/aarennp/), [X](http://x.com/AnonDevUser)
+[LinkedIn](https://www.linkedin.com/in/aarennp/), [X](http://x.com/AnonDevUser), [Instagram](https://www.instagram.com/aaren.vs.it/)
